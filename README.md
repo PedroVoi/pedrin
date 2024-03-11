@@ -17,3 +17,5 @@ pedro.augusto.paixao@escola.pr.gov.br
 
 ![](https://media.tenor.com/fYor2mjz-r4AAAAM/ronaldo.gif)
 ![](https://media.tenor.com/-WJZMWuiy38AAAAM/bom-dia-valtatu%C3%AD-bom-dia.gif)
+
+desloga da conta na próxima mn só avisando tlg fé em Deus e nas quiança da favela 👍
