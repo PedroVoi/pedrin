@@ -7,7 +7,7 @@ Meu nome é Pedro Voi
  
  -Estou aprendendo a liguagem de programação na plataforma [Scratch](https://scratch.mit.edu/)
  
- -Utilizo esse espaço para compartilhas á vocẽs o meu progreso.
+ -Utilizo esse espaço para compartilhar a vocẽs o meu progreso.
 
 ## Você pode entrar em contato comigo pelo EMAIL. 🎭☯️
 
